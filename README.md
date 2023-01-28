@@ -1,5 +1,5 @@
 # Hello, world!
 
-I was fucked up by netology
+I'm pissed off
 
 28.01.2023
